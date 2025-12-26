@@ -1,1 +1,1 @@
-https://cumstantin007.github.io/rabota-1/#
+https://cumstantin007.github.io/rabota-1/
